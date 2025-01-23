@@ -1,4 +1,4 @@
-Are you looking for a better way to write content or articles? Toolbaz.com offers an incredible array of AI-powered tools to help streamline your writing process and elevate your creativity. Here are some of the amazing tools you can explore on Toolbaz:
+Are you looking for a better way to write content or articles? [Toolbaz.com](https://toolbaz.com/))offers an incredible array of AI-powered tools to help streamline your writing process and elevate your creativity. Here are some of the amazing tools you can explore on Toolbaz: 
 
 * * *
 
